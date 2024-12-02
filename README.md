@@ -21,7 +21,7 @@
   
 
 <br/>  
-https://docs.google.com/presentation/d/1zB-HEHhJvvtv5nDgOUKX7SmoyZeAcYIb3kCFcwQ-tkY/edit#slide=id.g31b1bb571c9_1_3
+https://docs.google.com/presentation/d/1zB-HEHhJvvtv5nDgOUKX7SmoyZeAcYIb3kCFcwQ-tkY/edit?usp=sharing
 
 ## My Skill Set  
 <table><tr><td valign="top" width="33%">
